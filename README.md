@@ -12,6 +12,7 @@
 <p align="center">
   ur a weirdo, if u make rape jokes, u sexualize irl ppl, overly mean to people for no reason
 
+##
 <p align="center">
-  <img width="3000" height="240" src="https://cdn.discordapp.com/attachments/1271814445751996419/1322980406064189541/divider.png?ex=6772d904&is=67718784&hm=f6902183cfd22b48af56ada3b08e8e6af0063ba9124879b8da0c933f4acf63aa&">
+  <img width="2000" height="50" src="https://github.com/user-attachments/assets/49ccd6cc-670d-4157-85d9-83eb04b3655e">
 </p>
