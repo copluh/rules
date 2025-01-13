@@ -4,6 +4,7 @@
 
 <p align="center">
   im slow, sometimes i cant tell when ur srs or joking, im kindof sensitive, i make alot of typos
+<p align="center"> i can be awkward at times, but dont b afraid to interact!! i like making new friends
 
 ##
 <p align="center">
