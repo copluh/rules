@@ -1,6 +1,6 @@
 ## 
 <p align="center">
-$\text{\color{#C4A89E}before you follow!}$
+$\text{\color{#F4F0EB}before you follow!}$
 
 <p align="center">
   im slow, sometimes i cant tell when ur srs or joking, im kindof sensitive, i make alot of typos
@@ -8,7 +8,7 @@ $\text{\color{#C4A89E}before you follow!}$
 
 ##
 <p align="center">
-$\text{\color{#C4A89E}dont follow if!}$
+$\text{\color{#F4F0EB}dont follow if!}$
 
 <p align="center">
   ur a weirdo, if u make rape jokes, u sexualize irl ppl, overly mean to people for no reason
